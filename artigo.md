@@ -1,0 +1,4 @@
+﻿# Fernando Pessoa
+Fernando António Nogueira Pessoa (Lisboa, 13 de junho de 1888 – Lisboa, 30 de novembro de 1935)[4] foi um poeta português identificado com o modernismo, amplamente reconhecido como um dos principais autores da **língua portuguesa** e o maior **poeta lusófono** do século XX. Atuou também como dramaturgo, ensaísta, tradutor, publicitário, astrólogo, inventor, empresário, correspondente comercial, crítico literário e comentador político[5][6][7].
+
+Por ter sido educado na África do Sul, numa escola católica irlandesa de Durban, chegou a ter maior familiaridade com o idioma inglês do que com o português ao escrever as suas primeiras composições líricas nesse idioma. O crítico literário *Harold Bloom* considerou Pessoa como o *"Whitman renascido"*[8], incluíndo-se entre os 26 melhores escritores da civilização ocidental,[9] não apenas da literatura portuguesa mas também da inglesa.[9]
